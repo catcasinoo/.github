@@ -141,7 +141,7 @@
 
 ## Мобильная версия и приложение
 <p>
- &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/g2zWxXpQ/dragon-11.jpg' border='0' alt='catcasino'></a>
+ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/nzk79HP9/catmobile.png' border='0' alt='catcasino'></a>
 </p>
 
 Мобильная версия **Кэт казино** полностью адаптирована под смартфоны и планшеты. Сайт автоматически подстраивается под размер экрана и сохраняет весь функционал.
