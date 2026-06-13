@@ -109,7 +109,7 @@
 </p>
 
 ## Игры и слоты
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/90LVYZGy/Screenshot-15.png' border='0' alt='catcasinoslots'></a>
+<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/63GL7JNy/catslots.png' border='0' alt='catcasinoslots'></a>
 
 **Кэт казино** предлагает обширную коллекцию игр от ведущих провайдеров:
 - Pragmatic Play  
