@@ -80,7 +80,7 @@
 
 ## Бонусы и промокоды
 <p>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/XJ7Gx79d/Screenshot-9.png' border='0' alt='dragonmoneybonus'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://www.google.com/imgres?q=cat%20casino&imgurl=https%3A%2F%2Fbelbuck.ru%2Fcat-casino.jpeg&imgrefurl=https%3A%2F%2Fbelbuck.ru%2F%3Fsrsltid%3DAfmBOopSwGjNAAbxUc0nWzs8rPhJFTQZn4WOwTbeTlD1CJV7l6Tyoatw&docid=A7GLlgZp1vNZvM&tbnid=GG0j--d2vXxgnM&vet=12ahUKEwiYopCTmYSVAxWLHRAIHesSH0IQnPAOegQIKhAB..i&w=1672&h=586&hcb=2&ved=2ahUKEwiYopCTmYSVAxWLHRAIHesSH0IQnPAOegQIKhAB' border='0' alt='dragonmoneybonus'></a>
 </p>
 Одно из главных преимуществ **Кэт казино казино** — разнообразная система бонусов и промо-предложений.
 
