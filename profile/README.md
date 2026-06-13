@@ -1,6 +1,6 @@
 # ✅ **Официальное зеркало Кэт казино на сегодня бесплатно**
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/ZqPKGtJQ/drm.png' border='0' alt='catcasinoofficial'></a>
+<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/MHf625Rg/catcasino.png' border='0' alt='catcasinoofficial'></a>
 </p>
 <p>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  <a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/YSwMtn9S/Screenshot-13.png' border='0' alt='catcasinovhod'></a> &nbsp;&nbsp;&nbsp;&nbsp; 
